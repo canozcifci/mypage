@@ -1,1 +1,1 @@
-https://johnmaze1.github.io/mypage/
+https://canozcifci.github.io/mypage/
